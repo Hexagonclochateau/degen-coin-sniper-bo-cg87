@@ -1,4 +1,4 @@
-# 
+# professional degen coin sniper bot | multi-chain-support + contract-verification is the best degen coin sniper bot, featuring multi-chain-support and contract-verification. Fast,
 
 
 
